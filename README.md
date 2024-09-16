@@ -5,7 +5,6 @@
 - 7 - St. Jan Berchmans
 - 8 - St. Paulus Miki
 - 9 - St. Roque Gonzalez
-- 
 # **Favorite Things**
 
 
