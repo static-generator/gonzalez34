@@ -2,7 +2,7 @@
 ## Arii Remata
 > Naga City
 
-# ** Past LG's**
+# **Past LG's**
 - 7 - St. Jan Berchmans
 - 8 - St. Paulus Miki
 - 9 - St. Roque Gonzalez
