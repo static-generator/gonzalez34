@@ -19,3 +19,9 @@
 
 ![the-everygirl-feature-six-lessons-on-love-from-gilmore-girls](https://github.com/user-attachments/assets/d16d95ae-caef-46da-afbe-a47a01efa54a)
 - 2000's Romcom Movies
+
+![402a4bb42064906f0fe1edc0219e5425](https://github.com/user-attachments/assets/3e63c8e2-b45f-4bab-b3b9-ee3482c1e3d3)
+- Collecting Any Type of Merch (Mainly BTS, TXT & EN-)
+
+![my_melody_4x](https://github.com/user-attachments/assets/312f3e9b-058a-4677-b808-fddff5224889)
+- My Melody/Most of Pink Characters to Ever Excist
