@@ -2,9 +2,13 @@
 ## Arii Remata
 > Naga City
 
+# ** Past LG's**
 - 7 - St. Jan Berchmans
 - 8 - St. Paulus Miki
 - 9 - St. Roque Gonzalez
+
+# **Brief Description & The things I Aspire For**
+- I started my Academic Journey in the year 2013 at the Blue Ridge School of Learning, back in their main branch which lookedf like a mini version of a castle. I then proceeded to take Nursery 2 at the Naga Parochial School in the year 2014. After that, I switched schools again in the year 2015 for Kindergerten at the Ateneo Child Learning Center(Bagumbayan Campus). I then graduated Elementary at Naga City Montesorri School, I spent all the 6 years in the same school this time, don't worry. As for Junior High School, I have been in Ateneo de Naga Junior High School for the past 3 years of my JHS years. I plan on graduating here since it would be a waste not to. If you'd ask me where I'll spend my Senior High School years at, I'd say it would be in Ateneo as well. It'd be different for College though. I plan to take up Electrical Engineering as my Pre-Law Course since it seems really fun. I would probably take a break for a year or so before studying for Law again. My parents asked me why I would take an unrelated course for Pre-Law. To be honest, I know it will be hard but I want to be assured with my future. It's hard to pass the BAR Examns for Law, incase that doesn't work out I still have another profession to take up. It was also a divised plan with me and my siblings to each have a title in our names. My eldest brother is taking up Engineering, while mny sister plans on taking up Medicine or some sort of Medical Course that wopuld earn her the title of Doctor.
 # **Favorite Things**
 
 
